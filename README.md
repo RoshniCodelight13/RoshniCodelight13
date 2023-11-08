@@ -1,5 +1,5 @@
 <h1 align="center">Hi there 👋, Roshni Israni here </h1>
-<h3 align="center">I'm a Software Developer</h3>
+
 
 <img align="right" alt="coding" width="300" src="https://i.pinimg.com/originals/c6/14/83/c6148387fe378e13ceeea7cb11f1855f.gif">
 
