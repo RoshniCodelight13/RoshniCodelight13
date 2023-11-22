@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **roshniisrani31@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14pOvZQPtQmTYAuNllMzAN1xDt_Ym3iiB/view?usp=drivesdk](https://drive.google.com/file/d/14pOvZQPtQmTYAuNllMzAN1xDt_Ym3iiB/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1akd70Wj-2AMOFjXLkLwssg6vR-iT9q2f/view?usp=sharingz](https://drive.google.com/file/d/1akd70Wj-2AMOFjXLkLwssg6vR-iT9q2f/view?usp=sharingz)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
